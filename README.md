@@ -1,4 +1,4 @@
-![toaster](https://nxtkallax.de/img/toaster.jpg)
+![toaster](https://hnmlexi.moe/favicon.gif)
 
 ### Hi there 👋
 
