@@ -1,4 +1,4 @@
-![toaster](https://hnmlexi.moe/favicon.gif)
+![toaster](https://lexislab.moe/favicon.gif)
 
 ### Hi there 👋
 
